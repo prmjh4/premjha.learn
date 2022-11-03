@@ -1,0 +1,1 @@
+This is my personal portfolio in making. Currently, I am working in _VOIS as an Sr Exceutive (Operations Profile). Looking forward to switch to a Developer role in coming 3-6 months.
